@@ -1,1 +1,1 @@
-# HOWD 😎 CoOk 🌮 Small 🤏 Project 💻
+# HOWD CoOk Small Project
